@@ -1,1 +1,1 @@
-# buddhistjobnet.github.io
+# buddhistjobsnet.github.io
